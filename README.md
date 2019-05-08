@@ -1,0 +1,2 @@
+# freaky
+fun freaky time
